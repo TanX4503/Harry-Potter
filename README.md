@@ -4,5 +4,3 @@
 # Send this to someone who doesn't read Harry Potter
 
 # P.S. If you haven't read Harry Potters, don't see the video at the bottom unless you want spoilers
-
-# Disclaimer: I do not own any videos, images, links in this file, this document has been made just for entertainment and educational purposes and is not monetized
